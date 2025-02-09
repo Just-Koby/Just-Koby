@@ -4,10 +4,11 @@
 
 • This github is made specifically for my fictkin Koby.
 
+• I can get really clingy to you if we're close so please tell me if you're uncomfortable, PLEASE. I want to make sure you're comfortable around me :(
+
 • Import info: If you see this github in my ponytown profile whisper me first before approaching, it's either im sensitive at the moment
 or im using it for fun ^-^
 
-• I get clingy when I'm close to you but if you're uncomfy just tell me
 
 # Other info!!
 
@@ -17,4 +18,6 @@ or im using it for fun ^-^
 
 [**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, basic dni criteria. People using heavy nsfw jokes, please dni.
 
-[I don't know what else to add atp.. i will update it soon...]
+# VEEIFIED SUNNY AND TWEEKER KISSER ‼️
+
+- idk what more to add atp... i will update it eventually..
