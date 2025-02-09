@@ -2,6 +2,8 @@
 ![Untitled166](https://github.com/user-attachments/assets/97a8f1df-be0f-45e0-9d57-db655d7a2251)
 • Please call me Koby or Coby, I use he/him pronouns.
 
+• My birthday is October 8.. tinezone is gmt 8.
+
 • This github is made specifically for my fictkin Koby.
 
 • I can get really clingy to you if we're close so please tell me if you're uncomfortable, PLEASE. I want to make sure you're comfortable around me :(
@@ -18,6 +20,6 @@ or im using it for fun ^-^
 
 [**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, basic dni criteria. People using heavy nsfw jokes, please dni.
 
-# VEEIFIED SUNNY AND TWEEKER KISSER ‼️
+**VERIFIED SUNNY AND TWEEKER KISSER ‼️**
 
-- idk what more to add atp... i will update it eventually..
+- idk what more to add atp... i will update it eventually.. if you want more info int with me and i can tell you mire about myself :D
