@@ -2,7 +2,7 @@
 ![Untitled166](https://github.com/user-attachments/assets/97a8f1df-be0f-45e0-9d57-db655d7a2251)
 • Please call me Koby or Coby, I use he/him pronouns.
 
-• My birthday is October 8.. tinezone is gmt 8.
+• My birthday is October 8, timezone is gmt 8.
 
 • This github is made specifically for my fictkin Koby.
 
