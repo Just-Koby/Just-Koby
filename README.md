@@ -1,0 +1,20 @@
+“I am unworthy of your love”
+![Untitled166](https://github.com/user-attachments/assets/97a8f1df-be0f-45e0-9d57-db655d7a2251)
+• Please call me Koby or Coby, I use he/him pronouns.
+
+• This github is made specifically for my fictkin Koby.
+
+• Import info: If you see this github in my ponytown profile whisper me first before approaching, it's either im sensitive at the moment
+or im using it for fun ^-^
+
+• I get clingy when I'm close to you but if you're uncomfy just tell me
+
+# Other info!!
+
+![Untitled167_20250210024800](https://github.com/user-attachments/assets/e85d1af2-aba1-40ee-a7b3-76df8e05b354)
+
+[Int]: One piece fans, crk fans, anime fans, ALMOST all the fandoms, doubles, etc. :) 
+
+[**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, basic dni criteria. People using heavy nsfw jokes, please dni.
+
+[I don't know what else to add atp.. i will update it soon...]
