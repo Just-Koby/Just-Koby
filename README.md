@@ -22,4 +22,4 @@ or im using it for fun ^-^
 
 **VERIFIED SUNNY AND TWEEKER KISSER ‼️**
 
-idk what more to add atp... i will update it eventually.. if you want more info int with me and i can tell you mire about myself :D
+idk what more to add atp... i will update it eventually.. if you want more info int with me and i can tell you more about myself :D
