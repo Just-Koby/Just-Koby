@@ -1,3 +1,8 @@
+------------
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
+
+------
+
 <div align='center'>“I am unworthy of your love”
 
   ![Untitled166](https://github.com/user-attachments/assets/97a8f1df-be0f-45e0-9d57-db655d7a2251)
@@ -12,10 +17,29 @@
 • Important info: If you see this github in my profile in ponytown please whisper to me first before interacting, it could mean I'm vulnerable at the moment and I would appreciate it if you give me some space. 
 
 
-# Other info!!
+# Other info !!
 
 ![Untitled167_20250210024800](https://github.com/user-attachments/assets/e85d1af2-aba1-40ee-a7b3-76df8e05b354)
 
 [Int]: (Fandoms): JJK, Saiki K, bsd, genshin impact, honkai star rail, One piece, almost every fandom. (In general): Not a weirdo and not problematic.
 
 [**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, former friends, basic dni criteria. People using heavy nsfw jokes, please dni.
+
+---------
+🌸🌸🌸🌸🌸🌸🌸🌸🌸
+
+-------------
+
+<p/>Github may still be a wip and for additional information do ask me!
+
+-------------
+🌸🌸🌸🌸🌸🌸🌸🌸🌸
+
+-------------
+
+>[!IMPORTANT] This github is for my fictkin Koby, when i am him i can have a switch in personalities, for example:While I do allow flirting or saying nsfw jokes, Koby isn't comfortable with it, please respect his opinion ^_^ . Please call me Koby instead of Noven when im using this github.<div align='left'>
+
+-------------
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
+
+------
