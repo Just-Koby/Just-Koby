@@ -27,15 +27,8 @@
 
 [**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, former friends, basic dni criteria. People using heavy nsfw jokes, please dni.
 
----------
-🌸🌸🌸🌸🌸🌸🌸🌸🌸
-
 -------------
-
-<p/>Github may still be a wip and for additional information do ask me!
-
--------------
-🌸🌸🌸🌸🌸🌸🌸🌸🌸
+🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
 
 -------------
 
@@ -45,3 +38,6 @@
 🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
 
 ------
+
+Github may still be a wip 😿 if you want to know anything else about me do ask! ^_^
+
