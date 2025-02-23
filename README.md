@@ -39,7 +39,7 @@
 
 -------------
 
->[!IMPORTANT] This github is for my fictkin Koby, when i am him i can have a switch in personalities, for example:While I do allow flirting or saying nsfw jokes, Koby isn't comfortable with it, please respect his opinion ^_^ . Please call me Koby instead of Noven when im using this github.<div align='left'>
+>[!IMPORTANT] This github is for my fictkin Koby, when i am him i can have a switch in personalities, for example:While I do allow flirting or saying nsfw jokes, if im Koby at the moment I will get uncomfortable.. Please respect my opinion ^_^ . Call me Koby instead of Noven when im using this github.<div align='left'>
 
 -------------
 🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸🌸
