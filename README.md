@@ -1,25 +1,21 @@
-“I am unworthy of your love”
-![Untitled166](https://github.com/user-attachments/assets/97a8f1df-be0f-45e0-9d57-db655d7a2251)
+<div align='center'>“I am unworthy of your love”
+
+  ![Untitled166](https://github.com/user-attachments/assets/97a8f1df-be0f-45e0-9d57-db655d7a2251)
 • Please call me Koby or Coby, I use he/him pronouns.
 
-• My birthday is October 8, timezone is gmt 8.
+• If we haven't talked in a while i can get pretty distant towards you, or it could be i don't exactly know what to talk about. 
 
-• This github is made specifically for my fictkin Koby.
+• PLEASE Iwc, I get very nervous around people I don't know. I'm also kind of sensitive to insults even if they are a joke, kind of.
 
-• I can get really clingy to you if we're close so please tell me if you're uncomfortable, PLEASE. I want to make sure you're comfortable around me :(
+• Do not flirt with me or say any nasty things. I will block you if you don't listen to my warning.
 
-• Import info: If you see this github in my ponytown profile whisper me first before approaching, it's either im sensitive at the moment
-or im using it for fun ^-^
+• Important info: If you see this github in my profile in ponytown please whisper to me first before interacting, it could mean I'm vulnerable at the moment and I would appreciate it if you give me some space. 
 
 
 # Other info!!
 
 ![Untitled167_20250210024800](https://github.com/user-attachments/assets/e85d1af2-aba1-40ee-a7b3-76df8e05b354)
 
-[Int]: One piece fans, crk fans, anime fans, ALMOST all the fandoms, doubles, etc. :) 
+[Int]: (Fandoms): JJK, Saiki K, bsd, genshin impact, honkai star rail, One piece, almost every fandom. (In general): Not a weirdo and not problematic.
 
-[**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, basic dni criteria. People using heavy nsfw jokes, please dni.
-
-**VERIFIED SUNNY AND TWEEKER KISSER ‼️**
-
-idk what more to add atp... i will update it eventually.. if you want more info int with me and i can tell you more about myself :D
+[**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, former friends, basic dni criteria. People using heavy nsfw jokes, please dni.
