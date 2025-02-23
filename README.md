@@ -14,7 +14,7 @@
 
 • PLEASE Iwc, I get very nervous around people I don't know. I'm also kind of sensitive to insults even if they are a joke, kind of.
 
-• Do not flirt with me or say any nasty things. I will block you if you don't listen to my warning.
+• Do not flirt with me or say any nasty things. I will block you if you don't listen to my warning. Unless i consented it, only for close friends though.
 
 • Important info: If you see this github in my profile in ponytown please whisper to me first before interacting, it could mean I'm vulnerable at the moment and I would appreciate it if you give me some space. 
 
