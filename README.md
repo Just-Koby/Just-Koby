@@ -18,9 +18,11 @@
 
 ![Untitled167_20250210024800](https://github.com/user-attachments/assets/e85d1af2-aba1-40ee-a7b3-76df8e05b354)
 
-[Int]: (Fandoms): JJK, Saiki K, bsd, genshin impact, honkai star rail, One piece, almost every fandom. (In general): Not a weirdo and not problematic.
+[Int]: (Fandoms): JJK, Saiki K, bsd, genshin impact, honkai star rail, One piece, almost every fandom. 
 
-[**DNI**]: Helluva boss Fan, hazbin hotel fans, dsmp fans, former friends, basic dni criteria. People using heavy nsfw jokes, please dni.
+(In general): Not a weirdo and not problematic.
+
+[**DNI**]: Helluva boss fans, hazbin hotel fans, dsmp fans, former friends, basic dni criteria. People using heavy nsfw jokes, please dni.
 
 **End + Extra**
 
