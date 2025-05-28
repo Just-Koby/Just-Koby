@@ -30,6 +30,6 @@ Github may still be a wip 😿 if you want to know anything else about me do ask
 
 **[🌸]**
 
-This github is for my fictkin Koby, when i am him i can have a switch in personalities, for example:While I do allow flirting or saying nsfw jokes, if im Koby at the moment I will get uncomfortable.. Please respect my opinion ^_^ . Call me Koby instead of Noven when im using this github.
+This github is for my fictkin Koby, when I shifted to him mentally I can have a switch in personalities and mindset, for example:While I do allow flirting or saying nsfw jokes, if I kinshift into Koby I will get uncomfortable.. Please respect my opinion ^_^ . Call me Koby instead of Nagi when im using this github.
 
 ------
