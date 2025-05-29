@@ -18,18 +18,18 @@
 
 ![Untitled167_20250210024800](https://github.com/user-attachments/assets/e85d1af2-aba1-40ee-a7b3-76df8e05b354)
 
-[Int]: JJK, Saiki K, bsd, genshin impact, honkai star rail, One piece, almost every fandom. 
+[Int]: Anyone can interact with as long as you are not weird :3
 
-[**DNI**]: Basic dni criteria , I will just block you if I don't like you.
+[**DNI**]: no need to to list it out, if I don't like you I will block you. (which I rarely do)
 
 **End + Extra**
 
-Github may still be a wip 😿 if you want to know anything else about me do ask! ^_^
+Github may still be a wip, if you want to know anything else about me then please don't be afraid to ask
 
 -------------
 
 **[🌸]**
 
-This github is for my fictkin Koby, when I shifted to him mentally I can have a switch in personalities and mindset, for example:While I do allow flirting or saying nsfw jokes, if I kinshift into Koby I will get uncomfortable.. Please respect my opinion ^_^ . Call me Koby instead of Nagi when im using this github.
+This github is for my fictkin Koby, when I shifted to him mentally I can have a switch in personalities and mindset, for example:While I do allow flirting or saying nsfw jokes, if I kinshift into Koby I will get uncomfortable.. Please respect my opinion. Call me Koby instead of Nagi when im using this github.
 
 ------
